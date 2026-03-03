@@ -4,15 +4,16 @@
 
 Green Sumatra kratom delivers balanced energy and focus that works well for most users seeking daytime productivity without jitters. This Indonesian strain contains 1.2-1.4% mitragynine and provides 4-6 hours of sustained effects when dosed correctly at 2-4 grams for beginners.
 
-<span style="font-size: 16px; font-weight: bold; color: blue;">
-<a href="https://reviewscode.com/jb-shop" style="color: blue; font-weight: bold;">**Leading AKA Certified Products Available Now at Jack Botanicals**</a><br>
-**Quality Guaranteed: AKA GMP Certified & 9+ Independent Tests Per Batch – Save 30% With Code "JACK30"**
-</span>
+<b><span style="font-size: 16px; font-weight: bold; color: blue;">
+<a href="https://reviewscode.com/jb-shop" style="color: blue; font-weight: bold;">Leading AKA Certified Products Available Now at Jack Botanicals</a><br>
+Quality Guaranteed: AKA GMP Certified & 9+ Independent Tests Per Batch – Save 30% With Code "JACK30"
+</span><b>
+
 
 Green Sumatra kratom comes from the large Indonesian island of Sumatra, where kratom trees grow in mineral-rich soil that produces leaves with consistent alkaloid profiles. The green-veined variety offers middle-ground effects between the sedating red strains and stimulating white varieties, making it a solid choice for users who want energy without overstimulation.
 
 <span style="font-size: 16px;">
-<a href="https://reviewscode.com/jb-shop" style="color: blue;">**Top-Rated AKA Verified Vendor for Lab-Tested Kratom Products - Jack Botanicals**</a>
+<a href="https://reviewscode.com/jb-shop" style="color: blue;"><b>Top-Rated AKA Verified Vendor for Lab-Tested Kratom Products - Jack Botanicals<b></a>
 </span>
 
 ## Quick Answer
